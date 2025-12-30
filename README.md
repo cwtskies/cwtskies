@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  ིܳ  　 you would find me at the beach in every life,　through every door. 　　 ྀ  ·̩͙ 
+  ིܳ  　 you would find me at the beach in every life, through every door. 　　 ྀ  ·̩͙ 
 </p>
 
 <p align="center">
