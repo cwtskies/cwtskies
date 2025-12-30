@@ -9,3 +9,7 @@
 <p align="center">
 <img src="https://i.postimg.cc/T3pdLrpF/ezgif-11acd9dc5db173d4.webp" />
 </p>
+
+<p align="center">
+ 𝘰𝘱𝘵𝘪𝘮𝘪𝘻𝘦𝘥 𝘧𝘰𝘳 𝘱𝘤 𝘷𝘪𝘦𝘸𝘪𝘯𝘨; 𝘵𝘩𝘪𝘴 𝘱𝘢𝘨𝘦 𝘸𝘪𝘭𝘭 𝘭𝘰𝘰𝘬 𝘷𝘦𝘳𝘺 𝘮𝘦𝘴𝘴𝘺 𝘰𝘯 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨 𝘦𝘭𝘴𝘦
+</p>
